@@ -1,8 +1,5 @@
 ![RUN NEØ](https://ipfs.io/ipfs/bafybeig6o227nzrqqem3gmrk4fo3xksgc7yvaj7aawfsya7qj4e23d32su) 
 
-Claro, MELLØ. Aqui vai a versão BREAKING NEWS, escrita como se o Node News tivesse recebido um alerta interno e precisasse publicar imediatamente — ritmo rápido, direto, urgente, factual, sem perder a densidade técnica da operação RUN NEØ.
-
-────────────────────────────
 
 NODE NEWS • BREAKING NEWS
 
