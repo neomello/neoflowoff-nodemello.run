@@ -1,4 +1,6 @@
-⧉ NODE NEWS • BREAKING NEWS
+![RUN NEØ](https://ipfs.io/ipfs/bafybeig6o227nzrqqem3gmrk4fo3xksgc7yvaj7aawfsya7qj4e23d32su) 
+
+ NODE NEWS • BREAKING NEWS
 
 ⚠ ALTA PRIORIDADE — EVENTO AUTÔNOMO DETECTADO
 
